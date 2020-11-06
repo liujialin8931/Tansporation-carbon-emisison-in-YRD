@@ -8,4 +8,4 @@ Data is available for public view, request needed for edit and use.
 
 Contact info: 
 
-Jialin Liu (jialin.liu@nyu.edu)
+Jialin Liu (liu.jialin@outlook.com)
